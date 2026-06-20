@@ -106,6 +106,8 @@ improvise. Michael grinned at me impishly. Fine for him, I thought,
 he\'s in his element. \'Tape-recorder!\' he directed. Placing it between
 the four of us I turned it on\...
 
+![Holland Park](Holland-Park.png)
+
 MS: First question\...?
 
 JS: \...Tell me Mr. Diabrete..
