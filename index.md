@@ -1,3 +1,7 @@
+---
+layout: home
+---
+
 Janet Scott is a professional writer on Contemporary Art. She is based
 in London.
 
