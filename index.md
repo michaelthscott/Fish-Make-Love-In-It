@@ -9,9 +9,7 @@ Picture of Janet Painting
 
 'Janet?'
 
-My brother on the phone. The artist and film-maker Michael
-
-Scott.
+My brother on the phone. The artist and film-maker Michael Scott.
 
 'Yes\...?'
 
