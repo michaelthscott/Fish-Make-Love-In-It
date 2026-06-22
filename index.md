@@ -22,7 +22,7 @@ Michael had proved himself in the past a sensitive judge of the unusual,
 so I fished for details. He refused to elaborate. I was to meet him the
 following day at the cafe in Holland Park, three o\'clock. I agreed.
 
-Quite by accident we arrived on the same tube. Walking up from the
+Quite by accident we arrived on the same Tube. Walking up from the
 station I asked him to explain at least something of who these artists
 were.
 
@@ -222,7 +222,7 @@ bunch of nation-states!
 MBD: The terms can be split and interchanged. CREATIVE-ALIENATION. Voice
 calling out in vain. Thus lone Wolfie howled\...
 
-GO\'W: 00000000000!
+GO\'W: OOOOOOOOOOO!
 
 MBD: Us all too to some extent. Yet without artist anxiety, the need to
 be an artist, CREATIVE-ALIENATION pales to the depressive reflection of
